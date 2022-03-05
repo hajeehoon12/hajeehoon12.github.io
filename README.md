@@ -1,1 +1,0 @@
-# hajeehoon12.github.io
